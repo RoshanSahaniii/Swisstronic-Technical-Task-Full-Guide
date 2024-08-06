@@ -1,1 +1,0 @@
-# Swisstronic-Technical-Task-Full-Guide
